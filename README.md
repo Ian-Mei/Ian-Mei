@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hey! I'm Ian and I'm a freshman studying computer science at the University of Massachusetts Amherst.
+I am a student at the University of Massachusetts Amherst, studying computer science. I am also the freshman representative of the Taiwanese and Chinese Students' Association at UMass and am a very involved member of the community. I'm also a competitive swimmer, and I am on the UMass Club Swim team. I have been swimming for over 13 years, probably too long of a time. I also enjoy rock climbing and going to the gym, because my body is a temple. I am currently open to work, whether it be an internship or anything else. Feel free to contact me through any of the socials I've provided below! Thanks for stopping by!
 
 
 ## 🌐 Socials:
