@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am a student at the University of Massachusetts Amherst, studying computer science. I am also the Event Coordinator for the Taiwanese and Chinese Students' Association at UMass and am a very involved member of the community. I'm also a competitive swimmer, and I am on the UMass Club Swim team. Additionally, I enjoy rock climbing, working out, and hiking! I am currently open to work, whether it be an internship or anything else. Feel free to contact me through any of the socials I've provided below, I'm always open for a chat! Thanks for stopping by!
+I am a student at the University of Massachusetts Amherst, studying computer science. I am also the President of the Taiwanese and Chinese Students' Association at UMass and am a very involved member of the community. I'm also a competitive swimmer, and I am on the UMass Club Swim team. Additionally, I enjoy rock climbing, working out, and hiking! I am currently open to work, whether it be an internship or anything else. Feel free to contact me through any of the socials I've provided below, I'm always open for a chat! Thanks for stopping by!
 
 
 ## 🌐 Socials:
